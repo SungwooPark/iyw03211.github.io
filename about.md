@@ -10,4 +10,4 @@ through my accomplishment.
 
 ### Contact me
 
-Email: [iyw03211@gmail.com](mailto:iyw03211@gmail.com)
+[iyw03211@gmail.com](mailto:iyw03211@gmail.com)
